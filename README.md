@@ -1,0 +1,1 @@
+# ohmorieiichi.github.io
